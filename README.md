@@ -1,1 +1,1 @@
-https://Offh4nd.github.io/rsschool-cv/cv
+https://Offh4nd.github.io/rsschool-cv/index.html
